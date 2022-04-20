@@ -3,7 +3,7 @@
 
 
 ## 🚀 About Me
-I'm a frontend developer.
+I'm a frontend developer :blush:
 
 
 ## 🔗 Links
